@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @slowcoder69
+- 👀 I’m interested in everything
+- 🌱 I’m currently learning everything
